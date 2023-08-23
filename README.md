@@ -1,1 +1,1 @@
-# Community Op
+# Removed
